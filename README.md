@@ -71,7 +71,7 @@
 ![image](https://i.imgur.com/nmXTIuF.gif)
 ![image](https://i.imgur.com/OP5LjKm.gif)
 ![image](https://i.imgur.com/JbEqGo2.gif)
-![image](https://64.media.tumblr.com/aef24275aed9f3549b9a575fe4745409/ace909eab8f4c5c9-d5/s250x400/143ef79a67e05817fafc9fd81e79146fd35f176e.gifv)
+![image](https://64.media.tumblr.com/0a6ea262608baf7fa846802d5ad1c370/baf41b79d8f82464-18/s100x200/a2744ad9f37ca7f2e9a6175375bc4c910697dfc0.gifv)
 ![image](https://64.media.tumblr.com/859607cb3c0a288e4b84a6fa99d9c3b7/c45d516dda1c487a-62/s250x400/2eab163b3b9af159e28cb1fbc4bbcb228614bc9c.gifv)
 
 
