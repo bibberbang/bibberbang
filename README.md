@@ -1,3 +1,5 @@
+![](https://komarev.com/ghpvc/?username=bibberbang&color=ff69b4)
+
 ![image](https://64.media.tumblr.com/c723005d2950a1b7b79ac52a972730df/3af01827635f7726-3a/s250x400/fbc0993b8a154e00274fea7f958a53784973550f.gifv)
 ![image](https://github.com/glorbled/glorbled/assets/149897608/294a4511-045f-4fd1-b9f2-29388efeea3d)
 ![image](https://github.com/glorbled/glorbled/assets/149897608/3ebc6650-321c-4197-aa62-91c5681c8153)
